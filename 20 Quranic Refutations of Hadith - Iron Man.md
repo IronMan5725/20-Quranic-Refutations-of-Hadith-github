@@ -647,4 +647,3 @@ So ask sincerely:
 
 ---
 
-Would you like this turned into a rebuttal pamphlet, video script, or infographic for public distribution?
